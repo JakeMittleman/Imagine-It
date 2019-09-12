@@ -1,4 +1,4 @@
-﻿Disclaimer: All images used in this assignment are created by Jake Mittleman and he
+﻿Disclaimer: All images used are created by Jake Mittleman and he
 authorizes their use in this project.
 
 Images are sourced from mrmcgentleman.tumblr.com
